@@ -1,1 +1,0 @@
-# Colourful-ORE-UI-Resource-Pack-License
